@@ -1,4 +1,4 @@
-#  
+#  Experience enter brainrot heads like never before with new Scripts for enter brainrot heads, the #1 Script. Includes one-hit kill and auto-collect
 
 
 
